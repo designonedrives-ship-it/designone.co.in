@@ -1,1 +1,0 @@
-# designone.co.in
